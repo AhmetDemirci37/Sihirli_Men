@@ -58,6 +58,6 @@ Join our community of developers creating universal apps.
 ## Be sure to visit us.
 
 Adres : https://www.instagram.com/eylencebilgi
-Adres : https://www.youtube.com/@Eylencebilgi
+Adres : https://www.youtube.com/@Eylencebilgi-g
 Adres : https://www.tiktok.com/@eylencebilgi
 
